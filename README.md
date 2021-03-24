@@ -1,0 +1,2 @@
+# Gunting-Batu-Kertas-By-Ps1kop4t
+PERMAINAN GUNTING BATU-KERTAS
